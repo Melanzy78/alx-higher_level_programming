@@ -1,1 +1,1 @@
-Tasks solved 
+All Tasks solved 
